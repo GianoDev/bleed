@@ -1,5 +1,1 @@
-leaked source code to a fake bleed bot clone made by some 13 year old loser named amir (aka four)
-
-good luck getting this taken down nerd
-
-leaked by https://twitter.com/S8X
+possibility of this being a lil peep eboy testing application yes
